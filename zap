@@ -1,9 +1,9 @@
-https://vk.com/lotepub?w=wall-171754843_34
-https://vk.com/wall-212205109_2?access_key=c470ddcebbfbee9a6d
+https://vk.com/wall-171754843_34
+https://vk.com/wall-212205109_2
 https://vk.com/wall-210827493_40
 https://vk.com/wall-200279609_912
 https://vk.com/wall-174065452_6613
-https://vk.com/bloomybeatstore?w=wall-191533939_6359
+https://vk.com/wall-191533939_6359
 https://vk.com/wall-203412579_441
 https://vk.com/wall-203222839_53
 https://vk.com/wall-198453738_361
@@ -32,7 +32,7 @@ https://vk.com/wall-186871658_1192
 https://vk.com/wall-201368146_469
 https://vk.com/wall-209785353_936
 https://vk.com/wall-184177368_7479
-https://vk.com/wall-211867802_174?access_key=6ccb93ee062d9966b6
+https://vk.com/wall-211867802_174
 https://vk.com/wall-209785353_939
 https://vk.com/wall-205138607_357
 https://vk.com/wall-207051265_1259
@@ -49,9 +49,9 @@ https://vk.com/wall-200279609_947
 https://vk.com/wall-210431775_71
 https://vk.com/wall-200905006_343
 https://vk.com/wall-209238353_49
-https://vk.com/2x808itachi?w=wall-209110966_108
+https://vk.com/wall-209110966_108
 https://vk.com/wall-200905006_557
-https://vk.com/no.lilboscrol1?w=wall-205713723_127
+https://vk.com/wall-205713723_127
 https://vk.com/wall-203451743_196
 https://vk.com/wall-209785353_945
 https://vk.com/wall-204630576_316
