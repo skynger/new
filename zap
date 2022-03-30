@@ -69,4 +69,5 @@ https://vk.com/wall-205138607_189
 https://vk.com/wall-204093225_12
 https://vk.com/wall-207116366_127
 https://vk.com/wall-186871658_1253
+https://vk.com/wall-200740088_1258
 https://vk.com/wall-000000000_0
